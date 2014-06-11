@@ -1,7 +1,7 @@
 Challenges
 ==========
 
-I'm bored, let's do challenges.
+I'm bored, let's do challenges. (the following links might be outdated)
 
 
 
